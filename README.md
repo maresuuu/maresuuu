@@ -1,5 +1,5 @@
 # 💫 About Me:
-Y'all can call me Mahardhika. I am a student at Sangga Buana University, im at semester 7th.<br>Hobby: being alone<br>
+Y'all can call me Mahardhika.<br>Hobby: being alone<br>
 
 
 ## 🌐 Socials:
